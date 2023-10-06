@@ -17,10 +17,12 @@ Feel free to explore the /Certificates directory to view and download any certif
 Connect with Me : 
 
 LinkedIn: https://www.linkedin.com/in/devansh-gupta-ab7049247/
+
 Email: devansh.gupta6209@gmail.com
 
 Acknowledgments :
 I appreciate your interest in my educational journey. If you find something inspiring or have any feedback, I'd love to hear from you.
 
 Happy exploring!
+
 -Devansh
